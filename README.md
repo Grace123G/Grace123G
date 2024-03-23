@@ -14,3 +14,10 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+My name is Grace and I'm working on completing the Tech Elevator bootcamp in an attempt to better my professional career.
+
+Pronouns: she/her
+Location: Pheonix, AZ
+Fun Fact: Love anime and reading fiction books (part of booktok xD) and just recently got my Netflix subscription back
+Ask Me About: New anime coming out or the next season of Bridgerton (x-X) . Also still living through book 4 of ACOTAR so you can ask me about that too lol.
